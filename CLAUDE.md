@@ -59,3 +59,25 @@ Questo è un post che è piaciuto e che ha funzionato (6.240 visualizzazioni). M
 > Un giorno per volta.
 >
 > #appunti #vivere #famiglia #ilcalcioamodomio
+
+## Stato al 9 novembre 2026
+
+**Oggi (lunedì 9):** Appunti sul babbo operato (i quattro minuti in bagno, il barelliere, la dottoressa Sani, il messaggio sul gruppo WhatsApp). Versione corta pronta, da pubblicare alle 18:00. Il babbo è stato in ospedale dal 14 settembre al 6 novembre ed è tornato a casa operato, con tutto a posto.
+
+**Skill attive:** appunti-tempo-senza-istruzioni, post-fiorentina, promozione-gli-imbattibili, metodo-romanzo, promozione-etsy-pdf. Usarle sempre per i rispettivi post.
+
+**Numeri (controllo del 2 novembre, ultimi 30 giorni):** 1.247 follower, 133.389 visualizzazioni (-60%, ma il mese prima c'era il Venezia a 215.000), +21 follower.
+- Le formazioni del giovedì sono il motore: Como 52.820, Genoa 25.338, Inter 24.343.
+- Le foto vere battono le immagini costruite: post con foto vere 2.000-6.000, con immagini costruite sotto le 700.
+- Esercitazioni «Dai quaderni del mister»: una a 6.365, le altre 130-430. Troppo presto per giudicare.
+- Ancora da fare: guardare quali post fanno commentare di più (Contenuti → Filtri).
+
+**Fiorentina (Vanoli):** Inter-Fiorentina 2-1, Fiorentina-Atalanta 2-2, Sassuolo-Fiorentina 2-4, Fiorentina-Juventus 2-2.
+- La formazione di Matteo, 4-2-3-1: De Gea; Jiménez, Dragusin, Viery, Valdepeñas (o João Mario); Fagioli e Oulai; Njie, Gonçalves, Mastantuono; Pellegrino.
+- Il suo cavallo di battaglia: Gonçalves e Oulai titolari insieme, no al centrocampo a tre con Ndour e Brescianini.
+- Prossime: sosta per le Nazionali il weekend del 15 novembre; Monza-Fiorentina lunedì 23 novembre (orario da verificare: 18:30 o 20:45); Udinese-Fiorentina domenica 29 novembre alle 12:30 (da verificare).
+
+**Prossimi appuntamenti:**
+- Metà novembre: si parte con il Natale per il libro (skill promozione-gli-imbattibili).
+- Da fare con calma: descrizione ebook e categorie su KDP, biografia autore.
+- Pezzo lasciato lì: Operazione nostalgia (le formazioni sul giornale da ragazzo, l'Ascoli in Serie A).

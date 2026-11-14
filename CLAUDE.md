@@ -66,6 +66,8 @@ Questo è un post che è piaciuto e che ha funzionato (6.240 visualizzazioni). M
 
 **Skill attive:** appunti-tempo-senza-istruzioni, post-fiorentina, promozione-gli-imbattibili, metodo-romanzo, promozione-etsy-pdf. Usarle sempre per i rispettivi post.
 
+**Voce (dal 14 novembre 2026):** usare sempre la skill voce-matteo per ogni post personale e ogni testo creativo, insieme alla skill del singolo post. Le regole di ciascun progetto restano valide.
+
 **Numeri (controllo del 2 novembre, ultimi 30 giorni):** 1.247 follower, 133.389 visualizzazioni (-60%, ma il mese prima c'era il Venezia a 215.000), +21 follower.
 - Le formazioni del giovedì sono il motore: Como 52.820, Genoa 25.338, Inter 24.343.
 - Le foto vere battono le immagini costruite: post con foto vere 2.000-6.000, con immagini costruite sotto le 700.
